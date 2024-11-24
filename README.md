@@ -1,4 +1,4 @@
-# oxCraft AI Studio OTO - VoxCraftAI Studio OTO : A Full Review + Coupon Code
+# VoxCraft AI Studio OTO - VoxCraftAI Studio OTO : A Full Review + Coupon Code
 <h2 id="ftoc-heading-1" class="ftwp-heading">What is VoxCraftAI Studio?</h2>
 <p><strong>VoxCraftAI Studio</strong> is an innovative AI tool that transforms any voice-over, audio file, podcast, or recording into professional-quality videos in under 60 seconds. It allows users to create videos effortlessly and 10X faster without the need to face the camera, write scripts, record voiceovers, edit videos, or purchase expensive tools. Ideal for any niche, it simplifies the video creation process and enhances productivity.</p>
 <div>
